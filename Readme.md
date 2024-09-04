@@ -2,6 +2,11 @@
 
 ## MATIN
 
+- Petit-déjeuner
+- Yoga
+- Crèche
+- Lecture Emails
+
 ## APRÈS-MIDI
 
 - Déjeuner
