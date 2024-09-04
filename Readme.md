@@ -9,8 +9,10 @@
 
 ## APRÈS-MIDI
 
-- Déjeuner
-- Travail sur les consignes 
-- Pause café
-
 ## SOIRÉE
+
+- Crèche 
+- Diner
+- Temps en famille
+- Code ou film 
+
