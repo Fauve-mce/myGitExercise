@@ -4,4 +4,8 @@
 
 ## APRÈS-MIDI
 
+- Déjeuner
+- Travail sur les consignes 
+- Pause café
+
 ## SOIRÉE
